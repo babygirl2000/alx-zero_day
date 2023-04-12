@@ -1,1 +1,1 @@
-Manka is cool
+Manka is cool and smart!
